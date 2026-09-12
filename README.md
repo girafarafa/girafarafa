@@ -22,4 +22,4 @@
 
 ### 📫 Connect with Me
 
-* 📩 **Email:** [anastashutanu@gmail.com](mailto:anastashutanu@gmail.com)
+* 📩 **Email:** [anastasiahutanu@gmail.com](mailto:anastasiahutanu@gmail.com)
